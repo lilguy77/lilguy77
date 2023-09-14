@@ -8,11 +8,9 @@ Bill's situation paints a grim picture of the current state of healthcare and pr
 
 ## The Harsh Reality
 
-Several Canadians, in a display of misplaced priorities and lack of empathy, have told Bill to "pipe down" with their reasoning being that *"immigrants come first"*. This sentiment is not only disturbing but also showcases the growing divide and lack of compassion in the Canadian society.
+Several Canadians, in a display of misplaced priorities and lack of empathy, have told Bill to *"pipe down"* with their reasoning being that *"immigrants come first"*. This sentiment is not only disturbing but also showcases the growing divide and lack of compassion in the Canadian society.
 
 ## Quotes from rude Canadians about Bill
-
-*"Maybe if Bill was an immigrant, he'd get the care he's crying about."*
 
 *"Bill needs to understand that we have bigger priorities right now, like taking care of newcomers."*
 
