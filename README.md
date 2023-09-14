@@ -1,6 +1,6 @@
 # Justice for Bill DiMaria-Rico
 
-Bill DiMaria-Rico, a Canadian citizen, was denied the healthcare he rightfully deserves by his own government. In a country that prides itself on its healthcare system, this is a grave injustice.
+[Bill DiMaria-Rico](https://twitter.com/bouncingship), a Canadian citizen, was denied the healthcare he rightfully deserves by his own government. In a country that prides itself on its healthcare system, this is a grave injustice.
 
 ## The Plight of Bill
 
