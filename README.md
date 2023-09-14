@@ -8,7 +8,7 @@ Bill's situation is a testament to the deteriorating state of affairs in Canada.
 
 ## The Harsh Reality
 
-Several Canadians, in a display of misplaced priorities and lack of empathy, have told Bill to "pipe down" with their reasoning being that "immigrants come first". This sentiment is not only disturbing but also showcases the growing divide and lack of compassion in the Canadian society.
+Several Canadians, in a display of misplaced priorities and lack of empathy, have told Bill to "pipe down" with their reasoning being that *"immigrants come first"*. This sentiment is not only disturbing but also showcases the growing divide and lack of compassion in the Canadian society.
 
 ## Canada's Decline
 
