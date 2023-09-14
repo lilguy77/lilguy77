@@ -1,8 +1,3 @@
----
-layout: default
-title: Justice for Bill DiMaria-Rico
----
-
 # Justice for Bill DiMaria-Rico
 
 Bill DiMaria-Rico, a Canadian citizen, was denied the healthcare he rightfully deserves by his own government. In a country that prides itself on its healthcare system, this is a grave injustice.
@@ -26,6 +21,4 @@ It's time to raise our voices and ensure that Bill gets the healthcare he deserv
 - [Sign the Petition](#)
 - [Share Bill's Story](#)
 - [Contact Your Local Representative](#)
-
----
 
